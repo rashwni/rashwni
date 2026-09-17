@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on data analytics 
 - 📫 How to reach me: Through email Rashwni1808@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I'll go to university this September.
+- ⚡ Fun fact: I love mango cake.
 
 <!---
 rashwni/rashwni is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
